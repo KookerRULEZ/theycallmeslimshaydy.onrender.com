@@ -1,1 +1,1 @@
-# theycallmeslimshaydy.onrender.com
+# theycallmeslimshaydy.github.io
